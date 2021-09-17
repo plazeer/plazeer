@@ -1,4 +1,4 @@
-- Plazeer but just call me Tom, FR/EN, Japanese medias and games also higurashi and steins;gate enjoyer.
+- Tom, FR/EN, Japanese medias and games also higurashi and steins;gate enjoyer.
 
 - Discord : plazeer#3010 twitter : @plazeerlesang
 
