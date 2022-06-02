@@ -1,6 +1,6 @@
 - Tom, FR/EN, Japanese medias and games also higurashi and steins;gate enjoyer.
 
-- Discord : plazeer#3010 twitter : @plazeerlesang
+- Discord : plazeer#3010
 
 Just a beginner
 <!---
